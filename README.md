@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#### Currently employed by my colledge...
+#### No thoughts, head empty
 
 Avaliable at:
 <ul>
