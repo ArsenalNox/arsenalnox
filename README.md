@@ -1,5 +1,3 @@
-### Hi there 👋
-
 #### No thoughts, head empty
 
 Avaliable at:
