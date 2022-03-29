@@ -5,7 +5,6 @@
 Avaliable at:
 <ul>
   <li>Telegram: <a href='https://t.me/namerinnos'> @namerinnos </a> </li>
-  <li>Mail: <a href='mailto:nohtimore@gmail.com'> nohtimore@gmail.com </a> </li>
 </ul>
 
 <div>
